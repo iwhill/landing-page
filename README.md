@@ -1,0 +1,1 @@
+Mockup design of a website landing page.
